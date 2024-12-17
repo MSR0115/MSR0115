@@ -1,4 +1,4 @@
-## Hi there 👋
+Hi there 👋
 🌱 I'm Shamim Reza currently studying Computer Science and Engineering at Bangladesh University of Engineering and Technology.
 
 📫To reach me mail at s.reza0115c@gmail.com or WhatsApp at +880 1302280398
